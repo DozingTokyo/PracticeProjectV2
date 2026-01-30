@@ -1,4 +1,6 @@
 # PracticeProjectV2
+I collaborated!
+"D'oh!" -Homer Simpson
 feature 1 collab
 
 "if you aint first, your last" - Ricky Bobby
