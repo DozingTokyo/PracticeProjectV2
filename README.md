@@ -1,3 +1,3 @@
 # PracticeProjectV2
-Frustration quotes often highlight it as a painful yet essential part of growth, stemming from unmet expectations, a feeling of being stuck, or the gap between desire and reality, with many suggesting turning it into fuel for creativity, resilience, or action rather than letting it consume you
--- Google AI
+I collaborated correctly!
+“I used to think I was indecisive, but now I’m not too sure.” Charles Gary P Thompson
